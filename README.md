@@ -1,5 +1,5 @@
 # 💫 About Me:
-Saya adalah seorang programmer handal dan juga web developer
+Saya adalah seorang programmer dan juga web developer
 
 
 ## 🌐 Socials:
